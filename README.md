@@ -1,2 +1,2 @@
 # Certificates
-All my study,event and competition certificates
+All my study,event and competition certificates.
